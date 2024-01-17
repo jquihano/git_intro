@@ -1,1 +1,2 @@
 Jeremy Quihano
+quihanoj@oregonstate.edu
